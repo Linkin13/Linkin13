@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Linkin13
+- 👀 I’m interested in coding.. duh, and band... like school band
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on absolutely nothing
+- 📫 How to reach me blueelifs@gmail.com
